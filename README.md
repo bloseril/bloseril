@@ -27,8 +27,8 @@
 ---
 
 ### 📬Let's connect
--📨 Email: [berilutngr@gmail.com](mailto:berilutngr@gmail.com)
--💼 [Linkedin](https://www.linkedin.com/in/beril-%C3%BClkem-tang%C3%BCr-7137a5323/details/certifications/)
+- 📨 Email: [berilutngr@gmail.com](mailto:berilutngr@gmail.com) 
+- 💼 [Linkedin](https://www.linkedin.com/in/beril-%C3%BClkem-tang%C3%BCr-7137a5323/details/certifications/)
 
 ---
 
