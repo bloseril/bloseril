@@ -7,7 +7,6 @@
 
 ### About Me
 - 🎓Student at Çankaya University. My GPA is 2.90 for now.
-- 📜I achieved a ranking of approximately 45.000 in Turkey University entrance exam (YKS).
 
 
 ---
