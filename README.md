@@ -6,7 +6,7 @@
 ---
 
 ### About Me
-- 🎓Student at Çankaya University. My GPA is 2.90 for now.
+- 🎓Student at Çankaya University. My GPA is 2.93 for now.
 
 
 ---
