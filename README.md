@@ -32,5 +32,5 @@
 ---
 
 <p aling="center"> 
-  <i>✨No Pain, No Gain✨</i>
+  <i>✨✨</i>
 </p>
